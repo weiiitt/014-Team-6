@@ -4,7 +4,7 @@
 
 Wei Jiang - Weiiitt
 
-Amber Perillo - Amberperillo
+Amber Perillo - amberperillo
 
 Andrew Wang - anwa4862
 
